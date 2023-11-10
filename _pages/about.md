@@ -7,10 +7,11 @@ redirect_from:
   - /about.html
 ---
 
-# Meet Your Sixth Grade Computer Teacher
+## What to do after PSLE
 
 Hello, Primary 6 students! 👋
 
+!(https://www.google.com/imgres?imgurl=https%3A%2F%2Fdaily.jstor.org%2Fwp-content%2Fuploads%2F2015%2F05%2Fstandardizedtests.jpg&tbnid=S7aB_LcYke_tvM&vet=12ahUKEwiJ7uKLrbmCAxWy5TgGHTR4CfAQMygAegQIARBv..i&imgrefurl=https%3A%2F%2Fdaily.jstor.org%2Fshort-history-standardized-tests%2F&docid=g0Q-lRLD0659vM&w=1050&h=699&q=Test&ved=2ahUKEwiJ7uKLrbmCAxWy5TgGHTR4CfAQMygAegQIARBv)
 
 We have came to the end of out PSLE. What should we do next?
 
