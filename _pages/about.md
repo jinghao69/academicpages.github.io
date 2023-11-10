@@ -11,7 +11,7 @@ redirect_from:
 
 Hello, Primary 6 students! 👋
 
-We have came to the end of out PSLE. What should we do next?
+We have came to the end of our PSLE. What should we do next?
 
 This post will tell you almost all the things you will need to do.
 
