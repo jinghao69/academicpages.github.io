@@ -9,25 +9,28 @@ redirect_from:
 
 # Meet Your Sixth Grade Computer Teacher
 
-Hello, young tech enthusiasts! 👋
+Hello, Primary 6 students! 👋
 
-![foo-bar-identity.jpg](https://daviddhc20120601.github.io/academicpages.github.io/images/foo-bar-identity.jpg)
 
-I'm thrilled to introduce your incredible Sixth Grade Computer Teacher, Mr. Daviddhc20120601! He's not just any teacher; he's a digital wizard who will guide you through the exciting world of computer science and technology.
+We have came to the end of out PSLE. What should we do next?
 
-## About Mr. Daviddhc20120601
+This post will tell you almost all the things you will need to do.
 
-👩‍🏫 **Name:** Mr. Daviddhc20120601
+## 1. Play!
 
-🏫 **Grade:** Sixth Grade
+I am very, VERY sure that as the exams are over, fun comes in. Play for a good amount of time, whether its watching the television or just laying flat on your bed. Do whatever you want!
 
-🖥️ **Subject:** Computer Science
+However, it doesnt mean that that lasts forever. Dont overplay, like eight or more. Dont forget that health still matters!
 
-With a passion for all things tech and years of experience in making coding, programming, and digital creativity accessible to young minds, Mr. Daviddhc20120601 is here to make learning about computers a blast!
+## 2. Secondary school chosing
 
-## What to Expect
+on the first week of december,you will need to choose for your six secondary schoools. With not even a month left, you should start to plan for your schools.
 
-In Mr. Daviddhc20120601's class, you'll embark on an epic journey into the realms of programming, web development, and all the fun aspects of technology. You'll get hands-on experience with computers, learn to code, and even create your own digital masterpieces. Mr. Daviddhc20120601's class is the gateway to a world of endless possibilities.
+## What to do
 
-So, get ready to explore, learn, and code your way to success under the expert guidance of Mr. Daviddhc20120601. Your computer adventure is about to begin!
+Apprenly, 18/11 and 25/11 are two days where many secondary school open houses occur. Choose wisely where to go, and roam extensively in the school campus.
+
+You can also do a side by side comparsion of two schools, and see which school has more advantages that suit you. Factors are location, distance, CCA, LLP, ALP, AL score and much more. These usually can be found in the secondary school's website.
+
+Well, thats all! Just remember, your first day of school starts on the first five days of January 2024.
 
