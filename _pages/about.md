@@ -56,7 +56,7 @@ There are also many other things that you can do. Some schools might also have a
 
 From this post, I hope that you can enjoy your secondary school to the fullest. Once i mention again, there are many oppotunities in secondary school. Good Luck on your PSLE results and have fun in secondary school!
 
-## Useful links:
+## Useful links
 
 ![S1 school option form](https://www.moe.gov.sg/secondary/s1-posting/school-choices/complete-option-form/)
 
