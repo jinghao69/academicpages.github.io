@@ -5,4 +5,4 @@ sitemap: true
 permalink: /books/
 ---
 
-here are the books from me
+For now, I dont have any books. You might want to stay tuned.
