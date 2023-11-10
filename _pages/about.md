@@ -24,7 +24,7 @@ However, it doesnt mean that that lasts forever. Dont overplay, like eight or mo
 
 ## 2. Secondary school chosing
 
-on the first week of december,you will need to choose for your six secondary schoools. With not even a month left, you should start to plan for your schools.
+On the first week of december, You will need to choose for your six secondary schoools. With not even a month left, you should start to plan for your schools.
 
 ## What to do
 
