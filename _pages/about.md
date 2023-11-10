@@ -55,6 +55,14 @@ In secondary school, there is a programme(not all schools) that allow you to use
 There are also many other things that you can do. Some schools might also have a chilling zone that might have a racing simulator or even have a PS5, Nitendo switch and much more!!!
 
 From this post, I hope that you can enjoy your secondary school to the fullest. Once i mention again, there are many oppotunities in secondary school. Good Luck on your PSLE results and have fun in secondary school!
+
+Useful links:
+
+![S1 school option form](https://www.moe.gov.sg/secondary/s1-posting/school-choices/complete-option-form/)
+
+![MOE Schoolfinder(Secondary)](https://www.moe.gov.sg/schoolfinder?journey=Secondary%20school)
+
+![AL score for all secondary schools in SG(another website)](https://blog.thinkacademy.sg/2021/11/psle-al-score-for-secondary-schools/)
   
  
   
